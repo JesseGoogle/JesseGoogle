@@ -1,4 +1,4 @@
-这是 JesseZ332623 的小号
+From Earth
 
 - 👋 Hi, I’m @JesseGoogle
 
